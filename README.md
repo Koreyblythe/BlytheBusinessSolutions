@@ -1,2 +1,2 @@
-# blythecreativeco
+# blythebusinesssolutions
 Official contact and info page for Blythe Creative Company.
